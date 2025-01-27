@@ -1,0 +1,1 @@
+[[Engineer]][[Scientist]][[Writer]][[Philosopher]][[Artist]][[Miner]][[Manager]][[Operator]][[Draftsman]]

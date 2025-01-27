@@ -1,1 +1,1 @@
-[[Human/Being]][[Clothing]][[Jewerly]][[Trade Goods]][[Weapons]]
+[[Human/Being]][[Clothing]][[Jewerly]][[Trade Goods]][[Tool]][[Proffession]]

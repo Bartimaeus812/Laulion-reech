@@ -1,0 +1,1 @@
+[[Elemental]][[Abyssal]][[Chemical Fire]][[Wood Fire]][[Oil Fire]][[Quantum]][[Riftal]][[Sound]][[Tsunami]][[Elemental]][[Nous]][[Ender]][[Electricity]]

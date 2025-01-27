@@ -1,0 +1,1 @@
+[[Researcher]][[Inventor]][[Observer]]
