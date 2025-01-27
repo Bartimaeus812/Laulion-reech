@@ -1,0 +1,1 @@
+[[Plant]][[Animal]][[Full Being]][[Partial Being]][[Male]][[Female]][[Life]][[Water]]

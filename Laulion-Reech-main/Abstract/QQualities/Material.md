@@ -1,0 +1,1 @@
+[[Metal]][[Wood]][[Rock]][[Straw]][[Dirt]][[Gemstones]]

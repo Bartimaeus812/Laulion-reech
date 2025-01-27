@@ -1,0 +1,1 @@
+[[Water]][[Weather]][[Shiny]][[Rock]][[Dirt]]

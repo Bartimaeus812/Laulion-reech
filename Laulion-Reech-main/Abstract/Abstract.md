@@ -1,0 +1,1 @@
+[[Life]][[Absence]][[Name]][[QQualities]][[Sovereignty]][[Godly]][[Currency]]

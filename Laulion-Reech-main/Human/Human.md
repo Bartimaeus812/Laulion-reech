@@ -1,0 +1,1 @@
+[[Human/Being]][[Clothing]][[Jewerly]][[Trade Goods]][[Weapons]]
